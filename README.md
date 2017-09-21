@@ -99,7 +99,7 @@ TR Status: NO TRANSLATIONS </br>
 Author: Lee-eul, https://twitter.com/leeeul99 </br>
 
 --Korean-- </br>
-All: https://drive.google.com/open?id=0B0KenYoOszfkTy1iX3Z1REZmNjQ
+All: https://drive.google.com/open?id=0B0KenYoOszfkTy1iX3Z1REZmNjQ </br>
 Ch 13: https://imgur.com/a/TyGE2
 
 ——————————————————————————————————————————————————————————
