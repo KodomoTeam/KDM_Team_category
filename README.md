@@ -877,7 +877,7 @@ Status: ONGOING </br>
 Original Release Site: www.lezhin.com/ko/comic/flower_garden/ </br>
 Schedule: Saturday </br>
 TR Status: ONGOING </br>
-English Release Site: https://www.lezhin.com/en/comic/moonlightgarden </br>
+English Release Site: https://www.lezhin.com/en/comic/moonlhttps://imgur.com/a/XOeYxightgarden </br>
 TR Schedule: Friday </br>
 Author: Kang Unnie & Miss PM, https://twitter.com/MisPM_and_Kunni </br>
  
@@ -1051,6 +1051,7 @@ Ch 09: https://my.mixtape.moe/txtuhb.pdf </br>
 Ch 10: https://my.mixtape.moe/inglab.pdf </br>
 http://www81.zippyshare.com/v/CT890pmz/file.html </br>
 Ch 11-14: http://www65.zippyshare.com/v/jI1ciUGM/file.html </br>
+Ch 15: https://m.imgur.com/a/XOeYx
 
 ——————————————————————————————————————————————————————————
 
