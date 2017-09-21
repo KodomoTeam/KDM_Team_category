@@ -100,7 +100,19 @@ Author: Lee-eul, https://twitter.com/leeeul99 </br>
 
 --Korean-- </br>
 All: https://drive.google.com/open?id=0B0KenYoOszfkTy1iX3Z1REZmNjQ </br>
-Ch 13: https://imgur.com/a/TyGE2
+Ch 01: https://imgur.com/a/u4PKG </br>
+Ch 02: https://imgur.com/a/HBjE1 </br>
+Ch 03: </br>
+Ch 04: </br>
+Ch 05: </br>
+Ch 06: </br>
+Ch 07: </br>
+Ch 08: </br>
+Ch 09: </br>
+Ch 10: </br>
+Ch 11: </br>
+Ch 12: </br>
+Ch 13: https://imgur.com/a/TyGE2 </br>
 
 ——————————————————————————————————————————————————————————
 
