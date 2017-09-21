@@ -1,5 +1,6 @@
 # KDM_Team_category
-# To find the title you need, use CTRL + F to do it, if you can't find the link, it's mean that it hasn't been uploaded yet so don't ask or beg for it -NEDKID
+# This category only has raw and english fan translate/official link, no other languages are available here
+# To find the title you need, use CTRL + F to do it, if you can't find the link, it's mean that it hasn't been uploaded yet so don't ask or beg for it </br> Sign: Kodomo Team - こども (NEDKID)
 A WARM MOON </br>
 Status: ONGOING </br>
 Original Release Site: http://www.lezhin.com/ko/comic/moon </br>
