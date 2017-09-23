@@ -412,6 +412,9 @@ TR Status: NO TRANSLATIONS</br>
 Author: Seri, https://twitter.com/serikachan</br>
 http://blog.naver.com/schan1205
 Bi-wan, https://twitter.com/oOZLo</br>
+---Korean--- </br>
+Ch 00: https://my.mixtape.moe/qfjejy.pdf </br>
+Ch 01: https://my.mixtape.moe/zuwxad.pdf </br>
 
 ——————————————————————————————————————————————————————————
 
@@ -504,7 +507,7 @@ Author: Lobster, http://gaje.tistory.com/</br>
 https://twitter.com/ccu3030</br>
 
  ——————————————————————————————————————————————————————————
-</br>
+ 
 IT WOULD BE GREAT IF YOU DIDN'T EXIST
 Status: ONGOING</br>
 Original Release Site: http://www.foxtoon.com/comic/I_hope_you_did_not</br>
@@ -770,7 +773,7 @@ Ch 71: http://imgur.com/a/iHz5X</br>
 Ch 72: http://imgur.com/a/YEgtW</br>
 Ch 73: https://imgur.com/a/SP3mK</br>
 Ch 74: https://imgur.com/a/nWRuW</br>
-
+Ch 75: https://imgur.com/a/BCcek </br>
 --Rough Translations--</br>
 Honeymoon 01: https://imgur.com/gallery/xoeHF</br>
 Honeymoon 02: https://imgur.com/gallery/BN6ef</br>
@@ -1067,7 +1070,8 @@ Ch 09: https://my.mixtape.moe/txtuhb.pdf </br>
 Ch 10: https://my.mixtape.moe/inglab.pdf </br>
 http://www81.zippyshare.com/v/CT890pmz/file.html </br>
 Ch 11-14: http://www65.zippyshare.com/v/jI1ciUGM/file.html </br>
-Ch 15: https://m.imgur.com/a/XOeYx
+Ch 15: https://m.imgur.com/a/XOeYx </br>
+https://my.mixtape.moe/sjllye.pdf </br>
 
 ——————————————————————————————————————————————————————————
 
@@ -1165,6 +1169,7 @@ Ch 58: http://www55.zippyshare.com/v/VT312AZA/file.html </br>
 Ch 59: https://my.mixtape.moe/ettndw.pdf </br>
 Ch 60: http://imgur.com/a/1Hio4  </br>
 Ch 61: https://imgur.com/a/tJ52s </br>
+Ch 62: https://imgur.com/a/fvSxL </br>
 
 Conecting story: https://dynasty-scans.com/chapters/mentalityhttps://dynasty-scans.com/chapters/mentality </br>
 
