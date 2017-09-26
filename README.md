@@ -54,6 +54,7 @@ Epilogue: http://imgur.com/a/RpuBi </br>
 --Clean Translations-- </br>
 Ch 11: https://imgur.com/a/1LolZ </br>
 Ch 12: http://imgur.com/a/fVmYw </br>
+Ch 13: https://imgur.com/a/uJ1R6 </br>
 
 Batoto: https://bato.to/comic/_/comics/between-summer-fall-r21976 </br>
 
@@ -412,9 +413,11 @@ TR Status: NO TRANSLATIONS</br>
 Author: Seri, https://twitter.com/serikachan</br>
 http://blog.naver.com/schan1205
 Bi-wan, https://twitter.com/oOZLo</br>
----Korean--- </br>
+
+--Korean-- </br>
 Ch 00: https://my.mixtape.moe/qfjejy.pdf </br>
 Ch 01: https://my.mixtape.moe/zuwxad.pdf </br>
+Ch 02: https://my.mixtape.moe/ffllgk.pdf </br>
 
 ——————————————————————————————————————————————————————————
 
@@ -467,17 +470,17 @@ I'M SORRY I WENT INSANE</br></br>
 Status: COMPLETED </br></br>
 Original Release Site: http://www.foxtoon.com/comic/sorryinsane</br></br>
 TR Status: NO TRANSLATIONS</br></br>
-Author: CHO, http://www.todayhumor.co.kr/board/list.php?kind=member&mn=691872</br></br>
+Author: CHO, http://www.todayhumor.co.kr/board/list.php?kind=member&mn=691872</br>
 
  ——————————————————————————————————————————————————————————
 
-IMPRINT</br></br>
-Status: ONGOING</br></br>
-Original Release Site: http://www.bomtoon.com/comic/ep_list/imprint</br></br>
-Schedule: Sunday</br></br>
-TR Status: NO TRANSLATIONS</br></br>
-Author: Go-ri</br></br>
-Tou, https://twitter.com/TouTheWriter</br></br>
+IMPRINT</br>
+Status: ONGOING</br>
+Original Release Site: http://www.bomtoon.com/comic/ep_list/imprint</br>
+Schedule: Sunday</br>
+TR Status: NO TRANSLATIONS</br>
+Author: Go-ri</br>
+Tou, https://twitter.com/TouTheWriter</br>>
 
  ——————————————————————————————————————————————————————————
 
