@@ -102,18 +102,21 @@ Author: Lee-eul, https://twitter.com/leeeul99 </br>
 --Korean-- </br>
 All: https://drive.google.com/open?id=0B0KenYoOszfkTy1iX3Z1REZmNjQ </br>
 Ch 01: https://imgur.com/a/u4PKG </br>
+http://www31.zippyshare.com/v/Uipaixi9/file.html </br>
 Ch 02: https://imgur.com/a/HBjE1 </br>
-Ch 03: </br>
-Ch 04: </br>
-Ch 05: </br>
-Ch 06: </br>
-Ch 07: </br>
-Ch 08: </br>
-Ch 09: </br>
-Ch 10: </br>
-Ch 11: </br>
-Ch 12: </br>
+http://www100.zippyshare.com/v/KJagWBx7/file.html </br>
+Ch 03: http://www48.zippyshare.com/v/RfMYHsRY/file.html </br>
+Ch 04: http://www109.zippyshare.com/v/bZod7yix/file.html </br>
+Ch 05: http://www58.zippyshare.com/v/M1hjAd7b/file.html </br>
+Ch 06: http://www53.zippyshare.com/v/CuJVxNLL/file.html </br>
+Ch 07: http://www99.zippyshare.com/v/ZIfmKyp9/file.html</br>
+Ch 08: http://www7.zippyshare.com/v/FcI9JATO/file.html </br>
+Ch 09: http://www50.zippyshare.com/v/jgIGqpUa/file.html</br>
+Ch 10: http://www112.zippyshare.com/v/jQDSlk2m/file.html</br>
+Ch 11: http://www57.zippyshare.com/v/4gOlP27f/file.html</br>
+Ch 12: http://www53.zippyshare.com/v/ZLek87Kg/file.html</br>
 Ch 13: https://imgur.com/a/TyGE2 </br>
+http://www70.zippyshare.com/v/Nuo0QBT0/file.html </br>
 
 ——————————————————————————————————————————————————————————
 
@@ -185,10 +188,15 @@ Ch 23: http://www31.zippyshare.com/v/jVBOrnKZ/file.html </br>
 Ch 27: http://www49.zippyshare.com/v/Q20y77gg/file.html </br>
 Ch 28: http://www104.zippyshare.com/v/FAL5YqE5/file.html </br>
 Ch 29: http://www71.zippyshare.com/v/W7zcXfMT/file.html </br>
+Ch 30: http://www33.zippyshare.com/v/wJUqTsVU/file.html </br>
 
 --Official--
 Prologue https://my.mixtape.moe/imeedb.PNG </br>
 Ch 24: http://www105.zippyshare.com/v/VHwMV36y/file.html </br>
+Ch 25: http://www26.zippyshare.com/v/YDI2raZZ/file.html </br>
+Ch 26: http://www50.zippyshare.com/v/LKseixTy/file.html </br>
+Ch 27: http://www115.zippyshare.com/v/vMVcqtwT/file.html </br>
+Ch 28: http://www38.zippyshare.com/v/IriPDpBe/file.html </br>
 
 ——————————————————————————————————————————————————————————
 
@@ -314,6 +322,8 @@ Ch 21: http://www44.zippyshare.com/v/EGJ0YA4r/file.html </br>
 Ch 22: http://www78.zippyshare.com/v/OACgGL2x/file.html </br>
 https://my.mixtape.moe/bjmgag.pdf </br>
 Ch 23: https://my.mixtape.moe/dcpnjy.pdf </br>
+Ch 24: http://www76.zippyshare.com/v/Bc8LsOlG/file.html </br>
+Ch 25: http://www48.zippyshare.com/v/uJiYT8Rw/file.html </br>
 
 --Rough Translations-- </br>
 Ch 14: http://www55.zippyshare.com/v/FAuNsGKA/file.html </br>
@@ -418,6 +428,7 @@ Bi-wan, https://twitter.com/oOZLo</br>
 Ch 00: https://my.mixtape.moe/qfjejy.pdf </br>
 Ch 01: https://my.mixtape.moe/zuwxad.pdf </br>
 Ch 02: https://my.mixtape.moe/ffllgk.pdf </br>
+Ch 03: https://my.mixtape.moe/mnmljl.pdf </br>
 
 ——————————————————————————————————————————————————————————
 
@@ -544,6 +555,7 @@ Ch 57: https://m.imgur.com/a/Bbh4x</br>
 Ch 58: http://www2.zippyshare.com/v/XJYiUoPx/file.html</br>
 Ch 59: http://www71.zippyshare.com/v/1isT7Bni/file.html</br>
 Ch 60: http://www70.zippyshare.com/v/jovpKNdD/file.html</br>
+Ch 61: https://imgur.com/a/boLzo</br>
 
 --Clean Translations--</br>
 Prologue-Ch 19 Clean Dynasty and Batoto links below</br>
@@ -928,6 +940,7 @@ Ch 24: https://my.mixtape.moe/cbjnmk.pdf</br>
 Ch 25: </br>
 Ch 26: https://imgur.com/a/VkKYJ </br>
 Ch 27: http://www13.zippyshare.com/v/CFzPumyL/file.html </br>
+Ch 28: http://www116.zippyshare.com/v/VqIGB1KD/file.html </br>
 Prologue to Ch 27: https://webtoon.bamtoki.com/%EC%9B%94%EC%95%BC%ED%99%94%EC%9B%90 </br>
  
 --Official-- </br>
@@ -949,6 +962,8 @@ Ch 16: https://my.mixtape.moe/uheous.pdf </br>
 http://www20.zippyshare.com/v/tdyTgvdW/file.html </br>
 Ch 17: https://m.imgur.com/a/PZaM5 </br>
 Ch 18: https://imgur.com/a/CNyWk </br>
+Ch 19: http://www16.zippyshare.com/v/CSMAZYeX/file.html </br>
+Ch 20: http://www58.zippyshare.com/v/wj4HMqdF/file.html </br>
 
  —————————————————————————————————————————————————————————
 
@@ -1058,7 +1073,7 @@ http://imgur.com/a/tqbHX </br>
 Ch 22: http://www96.zippyshare.com/v/HRhbXIso/file.html </br>
 https://my.mixtape.moe/zviheu.pdf </br>
 Ch 23: https://my.mixtape.moe/snegjx.pdf </br>
- 
+ Ch 24: https://imgur.com/a/zcyO0  </br>
 --Official-- </br>
 Ch 01-10: https://my.mixtape.moe/csmequ.7zf </br>
 Ch 01: https://my.mixtape.moe/ssbhcq.pdf </br>
@@ -1075,7 +1090,8 @@ http://www81.zippyshare.com/v/CT890pmz/file.html </br>
 Ch 11-14: http://www65.zippyshare.com/v/jI1ciUGM/file.html </br>
 Ch 15: https://m.imgur.com/a/XOeYx </br>
 https://my.mixtape.moe/sjllye.pdf </br>
-
+Ch 16: https://my.mixtape.moe/reqomw.pdf </br>
+https://imgur.com/a/cCSr6 </br>
 ——————————————————————————————————————————————————————————
 
 PARTITION </br>
@@ -1227,7 +1243,7 @@ http://www91.zippyshare.com/v/6QVN4dPS/file.html </br>
 Ch 65: http://www32.zippyshare.com/v/H7dUbEsd/file.html </br>
 Ch 66: http://www71.zippyshare.com/v/jYkuN5hS/file.html </br>
 Ch 67: http://www2.zippyshare.com/v/uV4L8SDs/file.html </br>
-
+Ch 68: http://www57.zippyshare.com/v/2CSwJ2OH/file.html  </br>
 --Official-- </br>
 Ch 50: http://www38.zippyshare.com/v/8aHiCNf7/file.html </br>
 Ch 51: http://www120.zippyshare.com/v/dHH3Cm92/file.html </br>
@@ -1243,6 +1259,8 @@ Ch 60: http://www24.zippyshare.com/v/3UHWHYc2/file.html </br>
 Ch 61: http://www34.zippyshare.com/v/tZmcC8we/file.html </br>
 Ch 62: https://imgur.com/a/BGNJG </br>
 Ch 63: http://www70.zippyshare.com/v/KFhbGxu9/file.html </br>
+Ch 64: http://www81.zippyshare.com/v/HebR71cd/file.html </br>
+Ch 65: http://www108.zippyshare.com/v/IK3ZFdge/file.html </br>
 
 ——————————————————————————————————————————————————————————
 
@@ -1354,6 +1372,8 @@ Ch 77: https://imgur.com/a/DgxXt </br>
 Ch 76: http://s000.tinyupload.com/index.php?file_id=05716645765511853118 </br>
 Ch 77: https://imgur.com/a/DuMzH </br>
 https://track6.mixtape.moe/svwebn.pdf </br>
+Ch 78: https://my.mixtape.moe/ufmgew.pdf  </br>
+https://imgur.com/a/jjA96 </br>
 Translator: Meow-chan, https://twitter.com/MinoaLerano </br>
 
 ——————————————————————————————————————————————————————————
@@ -1397,6 +1417,7 @@ Ch 36: http://www107.zippyshare.com/v/7l4xjjCq/file.html </br>
 Ch 37: https://track5.mixtape.moe/aoawum.pdf </br>
 Ch 38: http://www99.zippyshare.com/v/6jVRp8g5/file.html </br>
 Ch 39: https://imgur.com/a/jMPcX </br>
+Ch 40: https://imgur.com/a/vL7Gj </br>
 ——————————————————————————————————————————————————————————
  
 THE WAY TO DESIRE </br>
@@ -1441,6 +1462,7 @@ Ch 01-17: http://www.zippyshare.com/minidaymd </br>
 Ch 18: http://www15.zippyshare.com/v/dqaBMsTQ/file.html </br>
 Ch 19: http://www24.zippyshare.com/v/KZGI8Bgq/file.html </br>
 Ch 20: http://www119.zippyshare.com/v/chKArGoJ/file.html </br>
+Ch 21: http://www39.zippyshare.com/v/JeglYbz7/file.html </br>
 
 ——————————————————————————————————————————————————————————
 
@@ -1658,6 +1680,8 @@ Ch 50: http://www7.zippyshare.com/v/MgBsL7eU/file.html </br>
 Ch 51: http://www100.zippyshare.com/v/L2mnGQKy/file.html </br>
 Ch 52: http://imgur.com/a/VpgE9 </br>
 Ch 53: http://imgur.com/a/w1owC </br>
+Ch 54: http://www25.zippyshare.com/v/RWoGzuSX/file.html </br>
+Ch 55: http://www25.zippyshare.com/v/t2iaGDTX/file.html </br>
 
 ——————————————————————————————————————————————————————————
 
